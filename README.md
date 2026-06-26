@@ -100,7 +100,7 @@ Kingston University London
 
 ## 📫 Connect With Me
 
-- LinkedIn: 
+- LinkedIn: https://www.linkedin.com/in/lebron-d-7b6812338
 - Email: ldaniel03@yahoo.com
 
 ---
